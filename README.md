@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Joy
+- 🧑‍🎓 I'm an IT Student
